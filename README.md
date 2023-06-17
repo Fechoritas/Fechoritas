@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Fechoritas / Hola soy @Fechoritas
+- 👀 I am interested in programming, reading and listening to music.
+- 🌱 I am currently doing my own projects and preparing to look for internships in a company
+- 📫 You can contact me at my personal email: mitsuaky2015@outlook.es
